@@ -1,2 +1,2 @@
-# Blox-fruits-mini-script
-Free script.
+# Blox-fruits CODE- ZEE4625COOL
+
